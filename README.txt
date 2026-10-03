@@ -54,3 +54,6 @@ No build step or package installation is required.
 
 تحديث النسخة السابعة:
 رابط زر فيس بوك: https://www.facebook.com/share/1DcsoswTdp/?mibextid=wwXIfr
+
+نسخة عادل الحضرمي:
+جهة الاتصال المحفوظة باسم عادل الحضرمي ورقم مدير الشركة +96899647482. أرقام نوافذ واتس أب والاتصال لم تتغير.
